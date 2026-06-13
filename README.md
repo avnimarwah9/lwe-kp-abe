@@ -118,5 +118,5 @@ This thesis is also available as a public preprint on ResearchGate.
 ## Contact
 
 Avni Marwah
-Research Intern, SAG Lab, DRDO
+Research Trainee, SAG Lab, DRDO
 M.Sc. Applied Mathematics, South Asian University (2026)
